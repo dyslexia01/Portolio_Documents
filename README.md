@@ -1,1 +1,1 @@
-# You may contribute to this collection my adding your own questions
+# You may contribute to this collection by adding your own questions
